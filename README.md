@@ -19,7 +19,7 @@
 
 - 💬 Ask me about **nothing**
 
-- 📫 How to reach me **salinasmanie984@gmail.com**
+- 📫 How to reach me **@gmail.com**
 
 - 📄 Know about my experiences [nowhere](nowhere)
 
